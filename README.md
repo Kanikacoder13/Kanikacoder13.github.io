@@ -11,5 +11,8 @@ I am ***Kanika***. I have done ***class 12th*** with **97.4 %** from ***Govt. Gi
 | Physics | 97 | 100 |
 | Chemistry | 99 | 100 |
 | Maths | 97 | 100 |
-| **TOTAL MARKS** | **487** | **500** |
+| **OVERALL MARKS** | **487** | **500** |
 
+***Overall grade :- A+***
+## INDUCTION PROGRAM 2024 
+![alt text](gndecppt.x)
