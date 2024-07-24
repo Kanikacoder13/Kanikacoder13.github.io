@@ -14,5 +14,6 @@ I am ***Kanika***. I have done ***class 12th*** with **97.4 %** from ***Govt. Gi
 | **OVERALL MARKS** | **487** | **500** |
 
 ***Overall grade :- A+***
-## INDUCTION PROGRAM 2024 
-![alt text](gndec.pptx)
+## Activities :-
+Completed online excel course :-
+
