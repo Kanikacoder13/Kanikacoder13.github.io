@@ -16,5 +16,5 @@ I am ***Kanika***. I have done ***class 12th*** with **97.4 %** from ***Govt. Gi
 ***Overall grade :- A+***
 ## Activities :-
 Completed online excel course **E - Certificate** :-
-
+![alt text]()
 
