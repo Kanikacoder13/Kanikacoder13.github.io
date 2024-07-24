@@ -23,7 +23,7 @@ Completed online excel course **E - Certificate** :-
 # Student Induction PROGRAMME 2024 
 **DAY - 01**
 **DATE - 10/07/24**
-Afte taken admission in GNDEC , It was my first day in college after became the part of this college . I was filled with lot of nervousness and excitement because i was going to meet up lot of new persons . We all gathered outside the gurudwara and my first day in the college began with kirtan(paath) and after that we all together headed up to the auditorium where we all were welcomed with a warm and heartouching speeches giving by the top professors of our college . They taught us a lot of valuable and energetic things so that we can feel comfortable on this place . 
+After taken admission in GNDEC , It was my first day as a part of this college . I was filled with lot of nervousness and excitement because i was going to meet up lot of new persons . We all gathered outside the Gurudwara Sahib and  college began with kirtan(paath) and after that we all together headed up to the auditorium where we all were welcomed with a warm and heartouching speeches giving by the top professors of our college . They taught us a lot of valuable and energetic things so that we can feel comfortable on this place . 
 
 
 
