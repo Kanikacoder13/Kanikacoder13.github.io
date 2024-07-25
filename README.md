@@ -23,8 +23,8 @@ Completed online excel course **E - Certificate** :-
 
 # Student Induction Program 2024 
 **DAY - 01**
-**DATE - 10/07/24**
 
+**DATE - 10/07/24**
 
 After taken admission in GNDEC , It was my first day as a part of this college . I was filled with lot of nervousness and excitement because i was going to meet up lot of new persons . We all gathered outside the Gurudwara Sahib and  college began with kirtan(paath) and after that we all together headed up to the auditorium where we all were welcomed with a warm and heartouching speeches giving by the guests of our college . They taught us a lot of valuable and energetic things so that we can feel comfortable on this place .
 
@@ -35,10 +35,12 @@ After taken admission in GNDEC , It was my first day as a part of this college .
 
 - **Dr.Sehjpal Singh**
   ( Current Principal )
+
 Principal Dr. Sehijpal Singh shared his words of wisdom with us. He shared about process by which we can learn skills during the time at the college. He also said that engineering is a art of solving problems. He ensured us that we are in right hands.
    
 - **Dr.S B Singh**
 ( Ex - Principal)
+
 Dr.S B Singh said that the GNE college provides a strong base that there is no any organisation or corner in the world where GNDEC student is not present. He also shared his valuable insights and experience. He shared about the strong alumni network of the college. He also stressed on the great Student-Teacher relation in the college.
 
 
