@@ -27,7 +27,8 @@ Completed online excel course **E - Certificate** :-
 **DATE - 10/07/24**
 
 After taken admission in GNDEC , It was my first day as a part of this college . I was filled with lot of nervousness and excitement because i was going to meet up lot of new persons . We all gathered outside the Gurudwara Sahib and  college began with kirtan(paath) and after that we all together headed up to the auditorium where we all were welcomed with a warm and heartouching speeches giving by the guests of our college . They taught us a lot of valuable and energetic things so that we can feel comfortable on this place .
-__**Dr.S B Singh
+
+- **Dr.S B Singh**
 ( Ex - principal)
 
    
