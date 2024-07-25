@@ -23,13 +23,14 @@ Completed online excel course **E - Certificate** :-
 
 # Student Induction Program 2024 
 **DAY - 01**
-
 **DATE - 10/07/24**
+
 
 After taken admission in GNDEC , It was my first day as a part of this college . I was filled with lot of nervousness and excitement because i was going to meet up lot of new persons . We all gathered outside the Gurudwara Sahib and  college began with kirtan(paath) and after that we all together headed up to the auditorium where we all were welcomed with a warm and heartouching speeches giving by the guests of our college . They taught us a lot of valuable and energetic things so that we can feel comfortable on this place .
 
 - **IAS,Harleen Parmar**
   ( Chief guest of the day )
+
   At the college auditorium, IAS Harleen Kaur was the first speaker of the day. She was alumni of the college. She was also student of BTech IT in 2002. She taught us that we can grab opportunities only if we are looking for them. She also shared about four major skills which every student should learn during their college time which include Subject Skills, Language Skills, People Skills & Life Skills.
 
 - **Dr.Sehjpal Singh**
