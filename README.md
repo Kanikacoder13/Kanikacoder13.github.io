@@ -54,10 +54,10 @@ Dr.S B Singh said that the GNE college provides a strong base that there is no a
 
 SSP Rajeshwar Singh encouraged us to always walk on the path of good deeds and helping others. Our every good deed and bad deed always counted. He encouraged us to embrace four essential phrases:
 
--[x] I am Sorry
--[] Please forgive me
--[] Thank you
--[] I love you
+- [x] I am Sorry
+- [ ] Please forgive me
+- [ ] Thank you
+- [ ] I love you
 
 Afer every mistake and lie we should be sorry to the god immediately. We can lie to everyone but we cannot lie to ourselves and God. We ourselves knows the truth behind our lie. As Newton’s third law of motion states that every action has an equal and opposite reaction, similarly what we give to the world and nature, we always receive the same thing in return.
     
