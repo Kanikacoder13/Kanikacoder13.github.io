@@ -72,7 +72,7 @@ Afer every mistake and lie we should be sorry to the god immediately. We can lie
 
 **DATE - 11/07/24**
 
-My second day was almost good as my first day . In auditorium, we took our seat at 9 o'clock . We met our new teachers with full of enthusiasm . Firsty I came to know there **Dr.Harpreet Kaur mam** and she has very polite nature . Then, **Dr. Arvind Dhingra Sir** who shared with us many important informations . He told us about various National and International societies and clubs going on in the college, number of canteens and playgrounds in the college, activities going on in college, Hostel facilities, certain upcoming activities etc. After him **Dr. Parminder Singh Sir** also addressed us and he explained scholarship schemes that our college offers to us . **Dr. H.S Rai sir** , he gave us knowledge of google and private searches then we took more guidance from him . After that before we leaving **Randhir sir** also joined us with **Dr. H.S Rai sir**.
+My second day was almost good as my first day . In auditorium, we took our seat at 9 o'clock . We met our new teachers with full of enthusiasm . Firsty I came to know there **Dr.Harpreet Kaur mam** and she has very polite nature . Then, **Dr. Arvind Dhingra Sir** who shared with us many important informations . He told us about various National and International societies and clubs going on in the college, number of canteens and playgrounds in the college, activities going on in college, Hostel facilities, certain upcoming activities etc. After him **Dr. Parminder Singh Sir** also addressed us and he explained scholarship schemes that our college offers to us . **Dr. H.S Rai sir** gave us knowledge of google and private searches then we took more guidance from him . After that before we left the auditorium **Randhir sir** also joined us with **Dr. H.S Rai sir**.
 
 - **Dr. Harpreet Kaur**
 Dr. Harpreet Kaur mam is the head of department of applied science . she started our day very nicely with mul mantra . She also motivated us for our next four journey .
@@ -80,18 +80,19 @@ Dr. Harpreet Kaur mam is the head of department of applied science . she started
 - **Dr.Arvind Dhingra**
  
 He explained us all types of memberships and societies 
-- Types of membership :
+**Types of membership** :
   1. Member
   2. Active member
   3. Executive member
   4. Office bearer
-- Types of societies:
+**Types of societies** :
   1. National level associated (e.g. SCIE ,SAE , ISTE)
   2. Department level associated (e.g. E2S2)
-He also gave us formula of success i.e. 3 P's of success :
-1. Passion
-2. Persistence
-3. Patience
+He also gave us formula of success i.e. **3 P's of success** :
+  1. Passion
+  2. Persistence
+  3. Patience
+   
 **Dr. Parminder Singh**
 
 Dr Parminder Singh addressed us and gave us information about all the scholarship schemes that provided by our college to the students . 
