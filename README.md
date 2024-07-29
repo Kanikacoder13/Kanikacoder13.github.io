@@ -72,7 +72,7 @@ Afer every mistake and lie we should be sorry to the god immediately. We can lie
 
 **DATE - 11/07/24**
 
-- **Dr. Arvind Dhingra** 
+My second day was almost good as my first day . In auditorium, we took our seat at 9 o'clock . We met our new teachers with full of enthusiasm . Firsty I came to know there **Dr.Harpreet Kaur mam** and she has very polite nature . Then, **Dr. Arvind Dhingra Sir** who shared with us many important informations . After him **Dr. Parminder Singh Sir** also addressed us and he explained scholarship schemes to us . **Dr. H.S Rai sir** , he gave us knowledge of google and private searches then we took more guidance from him . After that before we leaving **Randhir sir** also joined us with **Dr. H.S Rai sir** .
     
         
 
