@@ -105,7 +105,7 @@ Dr.H.S Rai sir is the controller of examinations and told us, that principle in 
 
 - [x] **DAY - 03**
 
-      **DATE - 12/07/24**
+**DATE - 12/07/24**
 
       
       
