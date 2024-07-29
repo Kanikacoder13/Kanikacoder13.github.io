@@ -75,6 +75,7 @@ Afer every mistake and lie we should be sorry to the god immediately. We can lie
 My second day was almost good as my first day . In auditorium, we took our seat at 9 o'clock . We met our new teachers with full of enthusiasm . Firsty I came to know there **Dr.Harpreet Kaur mam** and she has very polite nature . Then, **Dr. Arvind Dhingra Sir** who shared with us many important informations . He told us about various National and International societies and clubs going on in the college, number of canteens and playgrounds in the college, activities going on in college, Hostel facilities, certain upcoming activities etc. After him **Dr. Parminder Singh Sir** also addressed us and he explained scholarship schemes that our college offers to us . **Dr. H.S Rai sir** gave us knowledge of google and private searches then we took more guidance from him . After that before we left the auditorium **Randhir sir** also joined us with **Dr. H.S Rai sir**.
 
 - **Dr. Harpreet Kaur**
+  
 Dr. Harpreet Kaur mam is the head of department of applied science . she started our day very nicely with mul mantra . She also motivated us for our next four journey .
 
 - **Dr.Arvind Dhingra**
@@ -93,11 +94,11 @@ He also gave us formula of success i.e. **3 P's of success** :
   2. Persistence
   3. Patience
    
-**Dr. Parminder Singh**
+- **Dr. Parminder Singh**
 
 Dr Parminder Singh addressed us and gave us information about all the scholarship schemes that provided by our college to the students . 
   
-**Dr. H.S Rai**
+- **Dr. H.S Rai**
 
 Dr.H.S Rai sir is the controller of examinations and told us, that principle in software development is DRY(DON'T REPEAT YOYRSELF) He also explained that in ENGINEERING there is 90-90 rule which means if you done 90% work but left 10% work will take 90% efforts to finish that task . So , task finishing is must in software engineering .
 
