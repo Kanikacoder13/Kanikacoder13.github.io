@@ -89,6 +89,7 @@ He explained us all types of memberships and societies
 **Types of societies** :
   1. National level associated (e.g. SCIE ,SAE , ISTE)
   2. Department level associated (e.g. E2S2)
+
 He also gave us formula of success i.e. **3 P's of success** :
   1. Passion
   2. Persistence
@@ -101,6 +102,10 @@ Dr Parminder Singh addressed us and gave us information about all the scholarshi
 - **Dr. H.S Rai**
 
 Dr.H.S Rai sir is the controller of examinations and told us, that principle in software development is DRY(DON'T REPEAT YOYRSELF) He also explained that in ENGINEERING there is 90-90 rule which means if you done 90% work but left 10% work will take 90% efforts to finish that task . So , task finishing is must in software engineering .
+
+- [x] **DAY - 03**
+      **DATE - 12/07/24**
+      
 
 
     
