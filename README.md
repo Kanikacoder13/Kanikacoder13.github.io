@@ -25,7 +25,7 @@ Completed online excel course **E - Certificate** :-
 # Student Induction Program 2024 
 ![alt text](induction.jpg)
 
--[x] **DAY - 01**
+- [x] **DAY - 01**
 
 **DATE - 10/07/24**
 
@@ -108,6 +108,7 @@ Dr.H.S Rai sir is the controller of examinations and told us, that principle in 
 - [x] **DAY - 03**
 
 **DATE - 12/07/24**
+Today was our acedmic class with college lectures or professors .
 
       
       
