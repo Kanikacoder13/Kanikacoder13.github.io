@@ -68,11 +68,30 @@ SSP Rajeshwar Singh encouraged us to always walk on the path of good deeds and h
 
 Afer every mistake and lie we should be sorry to the god immediately. We can lie to everyone but we cannot lie to ourselves and God. We ourselves knows the truth behind our lie. As Newton’s third law of motion states that every action has an equal and opposite reaction, similarly what we give to the world and nature, we always receive the same thing in return.
 
-- [x]**DAY - 02**
+- [x] **DAY - 02**
 
 **DATE - 11/07/24**
 
-My second day was almost good as my first day . In auditorium, we took our seat at 9 o'clock . We met our new teachers with full of enthusiasm . Firsty I came to know there **Dr.Harpreet Kaur mam** and she has very polite nature . Then, **Dr. Arvind Dhingra Sir** who shared with us many important informations . After him **Dr. Parminder Singh Sir** also addressed us and he explained scholarship schemes to us . **Dr. H.S Rai sir** , he gave us knowledge of google and private searches then we took more guidance from him . After that before we leaving **Randhir sir** also joined us with **Dr. H.S Rai sir** .
+My second day was almost good as my first day . In auditorium, we took our seat at 9 o'clock . We met our new teachers with full of enthusiasm . Firsty I came to know there **Dr.Harpreet Kaur mam** and she has very polite nature . Then, **Dr. Arvind Dhingra Sir** who shared with us many important informations . After him **Dr. Parminder Singh Sir** also addressed us and he explained scholarship schemes to us . **Dr. H.S Rai sir** , he gave us knowledge of google and private searches then we took more guidance from him . After that before we leaving **Randhir sir** also joined us with **Dr. H.S Rai sir**.
+
+- **Dr.Arvind Dhingra**
+ 
+He explained us types of membership and societies 
+- Types of membership :
+  1. Member
+  2. Active member
+  3. Executive member
+  4. Office bearer
+- Types of societies:
+  1. National level associated (
+  2. Department level associated
+He also gave us formula of success :
+  3 P's of success
+1. Passion
+2. Persistence
+3. Patience 
+
+
     
         
 
