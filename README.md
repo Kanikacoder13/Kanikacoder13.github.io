@@ -25,7 +25,7 @@ Completed online excel course **E - Certificate** :-
 # Student Induction Program 2024 
 ![alt text](induction.jpg)
 
- -[x] **DAY - 01**
+-[x] **DAY - 01**
 
 **DATE - 10/07/24**
 
