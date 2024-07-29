@@ -103,11 +103,12 @@ Dr Parminder Singh addressed us and gave us information about all the scholarshi
   
 - **Dr. H.S Rai**
 
-Dr.H.S Rai sir is the controller of examinations and told us, that principle in software development is DRY(DON'T REPEAT YOYRSELF) He also explained that in ENGINEERING there is 90-90 rule which means if you done 90% work but left 10% work will take 90% efforts to finish that task . So , task finishing is must in software engineering .
+Dr.H.S Rai sir is the controller of examinations and told us, that principle in software development is DRY(DON'T REPEAT YOYRSELF) He also explained that in ENGINEERING there is 90-90 rule which means if you done 90% work but left 10% task will take 90% efforts to finish that task . So , task finishing is must in software engineering .
 
 - [x] **DAY - 03**
 
 **DATE - 12/07/24**
+
 Today was our acedmic class with college lectures or professors .
 
       
