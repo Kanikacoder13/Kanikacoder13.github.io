@@ -213,7 +213,6 @@ Today was our acedmic class with college lectures or professors .
 
 
 
-college lectures or professors .
 
       
       
