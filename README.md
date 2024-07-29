@@ -23,7 +23,7 @@ Completed online excel course **E - Certificate** :-
 # Student Induction Program 2024 
 ![alt text](induction.jpg)
 
-**DAY - 01**
+- [x]**DAY - 01**
 
 **DATE - 10/07/24**
 
@@ -68,7 +68,7 @@ SSP Rajeshwar Singh encouraged us to always walk on the path of good deeds and h
 
 Afer every mistake and lie we should be sorry to the god immediately. We can lie to everyone but we cannot lie to ourselves and God. We ourselves knows the truth behind our lie. As Newton’s third law of motion states that every action has an equal and opposite reaction, similarly what we give to the world and nature, we always receive the same thing in return.
 
-**DAY - 02**
+- [x]**DAY - 02**
 
 **DATE - 11/07/24**
 
