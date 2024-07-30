@@ -18,6 +18,10 @@ efforts in my field . I am very interested in exploring and learning new things 
 
 ***Overall grade :- A+***
 ## Activities :-
+MS - Excel beginner course :- 
+
+I'm thrilled to have completed the Excel course from Great Learning and received certification! This achievement demonstrates my proficiency in using Excel to analyze data, create visualizations, and drive business insights. I learned a lot from this online course .Through this course, I gained hands-on experience with advanced formulas, pivot tables, and charting techniques. I'm now equipped to leverage This certification showcases my dedication to upskilling and my ability to master industry-relevant skills. I'm excited to apply my newfound expertise to drive success in my professional endeavors!
+
 Completed online excel course **E - Certificate** :-
 
 ![alt text](Kanika20240723-73-996yeq.jpg)
@@ -28,7 +32,7 @@ Completed online excel course **E - Certificate** :-
 # Student Induction Program 2024 
 ![alt text](induction.jpg)
 
-- [x] **DAY - 01**
+- [x]**DAY - 01**
 
 **DATE - 10/07/24**
 
@@ -73,7 +77,7 @@ SSP Rajeshwar Singh encouraged us to always walk on the path of good deeds and h
 
 Afer every mistake and lie we should be sorry to the god immediately. We can lie to everyone but we cannot lie to ourselves and God. We ourselves knows the truth behind our lie. As Newton’s third law of motion states that every action has an equal and opposite reaction, similarly what we give to the world and nature, we always receive the same thing in return.
 
-- [x] **DAY - 02**
+- [x]**DAY - 02**
 
 **DATE - 11/07/24**
 
@@ -110,11 +114,11 @@ Dr Parminder Singh addressed us and gave us information about all the scholarshi
 
 Dr.H.S Rai sir is the controller of examinations and told us, that principle in software development is DRY(DON'T REPEAT YOYRSELF) He also explained that in ENGINEERING there is 90-90 rule which means if you done 90% work but left 10% task will take 90% efforts to finish that task . So , task finishing is must in software engineering .
 
-- [x] **DAY - 03**
+- [x]**DAY - 03**
 
 **DATE - 12/07/24**
 
-Today was our acedmic class with college professors or lecturers. Almost it was a good day and it was first academic class that we attended very cheerfully . 
+Today was our acedmic class with college professors or lecturers. Almost it was a good day and it was first academic class that we attended very cheerfully . This class was really full of excitement.
 
 
 
