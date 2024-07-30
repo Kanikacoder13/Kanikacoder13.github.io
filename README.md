@@ -22,8 +22,8 @@ Completed online excel course **E - Certificate** :-
 
 ![alt text](Kanika20240723-73-996yeq.jpg)
 
-# Blog post 
-![alttext](View my blog.txt)
+[Blog post]
+(https://github.com/Kanikacoder13/View-my-blogs.git)
 
 # Student Induction Program 2024 
 ![alt text](induction.jpg)
