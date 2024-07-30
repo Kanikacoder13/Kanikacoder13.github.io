@@ -86,11 +86,13 @@ Dr. Harpreet Kaur mam is the head of department of applied science . she started
 - **Dr.Arvind Dhingra**
  
 He explained us all types of memberships and societies 
+
 **Types of membership** :
   1. Member
   2. Active member
   3. Executive member
   4. Office bearer
+
 **Types of societies** :
   1. National level associated (e.g. SCIE ,SAE , ISTE)
   2. Department level associated (e.g. E2S2)
