@@ -26,7 +26,7 @@ Completed online excel course **E - Certificate** :-
 
 ![alt text](Kanika20240723-73-996yeq.jpg)
 
-![blog234]
+[blog234]
 (https://www.google.com/)
 
 # Student Induction Program 2024 
