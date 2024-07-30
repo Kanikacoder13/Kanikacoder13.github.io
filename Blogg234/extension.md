@@ -1,6 +1,2 @@
-day1 
-kehdksndnndjejw
-oehdjdhsjkdusidjdjeuueueuieiruriiriwie
-iwieuruueje
-ueieje
+https://github.com/Kanikacoder13/View-my-blogs
 
