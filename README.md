@@ -28,7 +28,7 @@ Completed online excel course **E - Certificate** :-
 
 # blog post 
 
-[extension.md](https://www.extension.md.io)
+[My experience](https://www.extension.md)
 
 # Student Induction Program 2024 
 ![alt text](induction.jpg)
