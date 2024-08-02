@@ -1,6 +1,6 @@
 # Student Induction Program 2024 
 
-![](induction.jpg)
+![alt text](induction.jpg)
 
 - [x]**DAY - 01**
 
