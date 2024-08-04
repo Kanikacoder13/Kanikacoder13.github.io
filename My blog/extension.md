@@ -90,6 +90,8 @@ Today our acedmic class was started with **Dr.Sandeep Kaur Gill** who taught us 
 
 **DATE - 15/07/24**
 
+Firstly **Dr. Randhir Singh** Sir took the stage for few minutes & told us some main things that we should do or not . 
+
 
 
       
