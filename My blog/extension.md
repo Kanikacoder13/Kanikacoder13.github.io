@@ -84,4 +84,13 @@ Dr.H.S Rai sir is the controller of examinations and told us, that principle in 
 
 **DATE - 12/07/24**
 
-Today our acedmic class was started with **Dr.Sandeep Kaur Gill** who taught us **maths** and then **Prof. Manjot Kaur** taught us **Universal Human Values** ,this is a new subject which includes all about self & body , Harmony etc . In our lecture i.e. of maths , firsty we all introduced ourselves afterthat mam recalled us some formulae or methods which we have done in our previous class . I liked that lecture & way of her teaching . Then after break there was our lecture of Universal Human Values . She taught us every concept clearly and doesn't make us feel bore while teaching . The lectures gave by teachers was really nice .
+Today our acedmic class was started with **Dr.Sandeep Kaur Gill** who taught us **maths** and then **Prof. Manjot Kaur** taught us **Universal Human Values** ,this is a new subject which includes all about self & body , Harmony etc . In lecture of maths , firstly we all gave our introduction to mam and afterthat mam recalled us some formulae or methods which we have done in our previous class . I liked that lecture & way of her teaching . Then after break there was our lecture of Universal Human Values . She taught us every concept clearly and doesn't make us feel bore while teaching as it was just whole a chapter discussion. The lectures gave by teachers was really nice .
+
+- [x] **DAY - 04**
+
+**DATE - 15/07/24**
+
+
+
+      
+      
